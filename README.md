@@ -1,1 +1,0 @@
-# TUGAS-AKHIR-09-Pemodelan-dan-Simulasi
